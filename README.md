@@ -10,7 +10,7 @@ Cuando ya se haya liberado tu boleta certificada puedes contactar mediante su em
 
 # Sistema SICERT
 
-Con tu boleta certificada ese mismo día de preferencia junta los documentos que te otorgan en gestión escolar y cumple con los [documentos](https://www.ipn.mx/dae/tramites/certificado-y-carta-de-pasante/) una vez cuentes con todos los documentos realiza el pago o transferencia segun tu convicción de ![Carta pasante y certificado total de estudios](https://www.ipn.mx/dae/precios.html)
+Con tu boleta certificada ese mismo día de preferencia junta los documentos que te otorgan en gestión escolar y cumple con los [documentos](https://www.ipn.mx/dae/tramites/certificado-y-carta-de-pasante/) una vez cuentes con todos los documentos realiza el pago o transferencia segun tu convicción de [Carta pasante y certificado total de estudios](https://www.ipn.mx/dae/precios.html)
 
 Asiste a la [DAE](https://www.google.com/maps/place/DAE+-+Direcci%C3%B3n+de+Administraci%C3%B3n+Escolar+-+IPN/@19.4970286,-99.1329744,17z/data=!4m6!3m5!1s0x85d1f9ba3ef09985:0x6e5b1d699b26cf07!8m2!3d19.4970286!4d-99.1329744!16s%2Fg%2F1hd_ht506?entry=ttu) con tus boucher de pago o tus hojas impresas de los pagos que realizaste, junto con la documentación.
 
